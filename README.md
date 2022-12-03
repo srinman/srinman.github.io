@@ -1,1 +1,0 @@
-# srinman.github.io
